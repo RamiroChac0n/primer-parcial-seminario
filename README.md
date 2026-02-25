@@ -1,4 +1,4 @@
 # primer-parcial-seminario
 
 
-Link de los screenshots: https://drive.google.com/file/d/1IEr_r6R0-0gIBn23U_DHR9BGDCtsega-/view?usp=sharing
+Link de los screenshots: https://drive.google.com/drive/folders/1-Vtnh8Gm6PBFd6vvhjmRcXzM5qlI3EiX?usp=sharing
